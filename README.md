@@ -1,3 +1,5 @@
+<b><a href="https://mythic4356.github.io/home/">Home</a><b/>  <b><a href="">SmpTale</a><b/>
+
 ![alt text](https://i.imgur.com/d8NwS00.png)
 
 A smp which i am working on :)
