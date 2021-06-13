@@ -1,6 +1,6 @@
 <b><a href="https://mythic4356.github.io/home/">Home</a><b/>  <b><a href="">SmpTale</a><b/>
 
-![alt text](https://i.imgur.com/d8NwS00.png)
+![alt text](https://fontmeme.com/permalink/210613/b05f6100e03137a240da75c51779672a.png)
 
 A smp which i am working on :)
 pretty much having bunch of plugins so please support by joining the discord server <a href="https://discord.gg/CZ6NtHb3s7">link</a> 
